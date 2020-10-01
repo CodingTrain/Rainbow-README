@@ -42,3 +42,4 @@
 👽 💫 ✨ 🌙 🌞 🌙 ✨ 💫 👽 💫 ✨ 🌙 🌞 🌙 ✨ 💫 👽
 👽 💫 ✨ 🌙 🌞 🌙 ✨ 💫 👽 💫 ✨ 🌙 🌞 🌙 ✨ 💫 👽
 # Congrats you made it to bottom, that took some effort ❤
+[Go to top](#a-rainbow-readme-full-of-hearts-more-and-a-wave)
